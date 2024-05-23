@@ -2,7 +2,7 @@
 - 👀 I’m interested in journalism, content tv and art and content production. 
 - 💀 I’m an entrepreneur on blockchain and always learning about it
 - 💞️ I’m always looking to collaborate on projects with purpose
-- 📫 How to reach me on Farcaster (Giulietta) Talent Protocol (Giulietta) X (@PiccolaGiulia) Telegram (GiuliettaMila) LinkedIn (GiuliettaMila) 
+- 📫 Reach me on Farcaster (Giulietta) Talent Protocol (Giulietta) X (@PiccolaGiulia) Telegram (GiuliettaMila) LinkedIn (GiuliettaMila) 
 - 🙃 Pronouns: Giulietta 
 - ⚡ Fun fact: futbol is life, Satoshi is a woman and I am a happy woman ever and ever ;) 
 
